@@ -1,0 +1,2 @@
+# bagus-resolusi
+repositori
